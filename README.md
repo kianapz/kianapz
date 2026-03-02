@@ -1,6 +1,6 @@
 # Hi there, I'm Kiana Lesan Pezeshki 👋
 
-🌐 **Location**: Windsor, Ontario, Canada  
+🌐 **Location**: Greater Toronto Area , Ontario, Canada  
 📧 **Email**: [lesanpe@uwindsor.ca](mailto:lesanpe@uwindsor.ca)  
 🔗 **LinkedIn**: [Kiana Pezeshki](https://www.linkedin.com/in/kiana-pezeshki)
 
